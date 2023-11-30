@@ -1,3 +1,3 @@
 # columbia_2
 
-Hi Class
+Hi Everyone!
