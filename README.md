@@ -1,3 +1,1 @@
-# columbia_2
-
-Hi Everyone!
+hey everyone
